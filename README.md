@@ -1,5 +1,0 @@
-- 👋 Hi, I’m @robbigamer
-- 👀 I’m interested in gaming, and I wanna make games someday. Though I doubt that'll be any time soon.
-- 🌱 I’m currently learning at School. 😆 
-- 💞️ I’m looking to collaborate on... Uh... I don't know.
-- 📫 How to reach me: @RobbiGamer2 on Twitter, I'm always active there because I use Twitter way more than I want to admit.
